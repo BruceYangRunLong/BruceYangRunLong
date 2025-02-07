@@ -25,7 +25,7 @@ Here are some ideas to get you started:
 
 ## 📬 Contact Me
 
-- 📧 Email: [3066955869@qq.com]
+- 📧 Email: [20227028@stu.neu.edu.cn]
 - 💬 Phone number: 15756380547
 
 ---
